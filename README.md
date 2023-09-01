@@ -24,7 +24,7 @@
 <br>• Made by loki with ❤️
 <br>
 <br>
-• You can check my project hobbies on it
+• You can check my project, hobbies on it
 <br>
 <br>
 • This is my favourite project and i enjoyed a lot from it 
